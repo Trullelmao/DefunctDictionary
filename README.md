@@ -64,3 +64,6 @@ Sputnik please describe this shit i can't put it into words---------------------
 [oah] - word
 word can mean alot of things depending on the occasion but
 generally means "alright". It feels like the word is a mixup of "oh" and "ah"
+
+[kank] - word/descriptor
+kank is "kanker" shortened. implies something is cancer.
