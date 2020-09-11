@@ -46,15 +46,20 @@ Fabricated wave example below.
 Bombing literally means "having a shit", but is implying you're having a giant 
 shit that is comparable with bombing the toilet.
 
-[Billy] - descriptor/name  
-Billy means something is large is size.
-"Billy af"
-
 [Frasier] - descriptor/name 
 Frasier is a name mentioned in the famous Terry A. Davis video where he mentions
 the CIA individuals whom glow in the dark.
 
+[Disco] - Varies
+Disco can be used as a name "Disco Bob" or to express something was
+Disco af. opposite of calm.
 
+[smol] - descriptor
+smol is a twist of the word "small" meaning something is either small in 
+quantity, lenght, numbers or size.
+
+[mangled] - descriptor
+Sputnik please describe this shit i can't put it into words----------------------------------------------------------
 
 
 
