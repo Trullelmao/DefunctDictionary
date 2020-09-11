@@ -59,16 +59,8 @@ smol is a twist of the word "small" meaning something is either small in
 quantity, lenght, numbers or size.
 
 [mangled] - descriptor
-Sputnik please describe this shit i can't put it into words----------------------------------------------------------
+Sputnik please describe this shit i can't put it into words------------------------------------------------------------------------------------
 
-
-
-
-
-
-
-
-
-
-
-
+[oah] - word
+word can mean alot of things depending on the occasion but
+generally means "alright". It feels like the word is a mixup of "oh" and "ah"
