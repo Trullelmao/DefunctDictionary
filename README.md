@@ -4,7 +4,9 @@
 The word mokk originates from the word mock and is used when one person is mocking another.
 
 [Boff] - descriptor/name  
-Where the name Boff originates from is unknown but is commonly used as a replacement name.
+The word boff originates from a depressed cat looking at the glass in his hand with
+the caption "Vodka Boff" which make sputnik laugh inane amounts.
+it is simply a made up word without meaning.
 
 [Makker] - descriptor/name  
 Makker is often used as a very light mokk towards the other person. 
@@ -59,7 +61,8 @@ smol is a twist of the word "small" meaning something is either small in
 quantity, lenght, numbers or size.
 
 [mangled] - descriptor
-Sputnik please describe this shit i can't put it into words------------------------------------------------------------------------------------
+when a person or object has undergone damage making it appear deformed and non functioning like it was intended to
+similar to rucked, means something isn't right whether it's a person or object.
 
 [oah] - word
 word can mean alot of things depending on the occasion but
@@ -81,6 +84,39 @@ whilst mag & magget is often used in a jokingly fashion.
 
 [bingus] - word
 wave enhanced word of penis.
+
+[dad is upstairs] - name 
+the w2g name trulle always uses in the w2g sessions after a catastrophic 
+event regarding sputniks father being upstairs hearing the hentai blaring from
+the webpage one unfortunate evening.
+
+[biffa] - word
+biffa baffa i'm gandalf.
+
+[jaj, jajj, JAjJAJA, etc]
+the combination of several J's and A's is a way to say "ok", "alright" and "whatever"
+all in one.
+usually executed once you don't know how to respond or can't think of something better.
+
+[arson] - act
+The cat will inevitably burn down the house.
+
+[slug death] - happening
+The execution of the slug occured in Sep 23, 2019 when Sputnik the man himself
+brutally slayed a slug using chemicals (7647-14-5) found in his own kitchen.
+After the bloodshed took place he attempted resurrection but in vain.
+After realising he couldn't revive the slug using a mix of WD-40 and water he
+decided to burn the remains.
+
+
+
+
+
+
+
+
+
+
 
 
 
