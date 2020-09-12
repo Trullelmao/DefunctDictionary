@@ -102,23 +102,21 @@ usually executed once you don't know how to respond or can't think of something 
 The cat will inevitably burn down the house.
 
 [slug death] - happening
-The execution of the slug occured in Sep 23, 2019 when Sputnik the man himself
+The execution of the slug occured on Sep 23, 2019 when Sputnik the man himself
 brutally slayed a slug using chemicals (7647-14-5) found in his own kitchen.
 After the bloodshed took place he attempted resurrection but in vain.
 After realising he couldn't revive the slug using a mix of WD-40 and water he
 decided to burn the remains.
 
+[single peng] - phrase
+"single peng" originates from the occult dutch video where a puppetman drops a coin.
 
+[nvm] - varies
+"nvm" is used to waste another persons time.
 
-
-
-
-
-
-
-
-
-
-
-
-
+[spy] - act
+sputnik: ok imma go m8
+trulle: wait come under deck and look!
+-trulle has left the game
+sputnik tf where did you go?
+trulle: :spy:
