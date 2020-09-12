@@ -67,3 +67,22 @@ generally means "alright". It feels like the word is a mixup of "oh" and "ah"
 
 [kank] - word/descriptor
 kank is "kanker" shortened. implies something is cancer.
+
+[cocknap. cocknapper, cocknapped] - varies
+Cocknap is a word developed after several years of wavery. only a select of people
+know the meaning and/or can relate to when it is used.
+
+[bag, bagg, bagget, bagger] - varies
+This word is often used to mention the other person in a wave way.
+
+[mag, maggot, magget] - descriptor
+maggot is a mokk, if directed towards yourself it means you've done something 
+whilst mag & magget is often used in a jokingly fashion.
+
+[bingus] - word
+wave enhanced word of penis.
+
+
+
+
+
