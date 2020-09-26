@@ -120,3 +120,7 @@ trulle: wait come under deck and look!
 -trulle has left the game
 sputnik tf where did you go?
 trulle: :spy:
+
+[fairgh] - word
+When harry crashed into the tower a voice was heard uttering "fairgh", originates from 
+harry potter joins isis [YTP].
