@@ -124,3 +124,7 @@ trulle: :spy:
 [fairgh] - word
 When harry crashed into the tower a voice was heard uttering "fairgh", originates from 
 harry potter joins isis [YTP].
+
+[hovering above] - act
+When something is levitating, whether it's a hand or a aeroplane. It's hovering above.
+Usually used when something occult occurs that needs reminisce of berserk.
